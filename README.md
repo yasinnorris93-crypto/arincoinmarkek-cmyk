@@ -1,1 +1,0 @@
-# arincoinmarket-cmyk
