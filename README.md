@@ -1,1 +1,1 @@
-# arincoinmarkek-cmyk
+# arincoinmarket-cmyk
